@@ -1,0 +1,1 @@
+# ajrichter7.github.io
